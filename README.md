@@ -13,4 +13,4 @@ My other main interest is data and analyzing datasets to deliver meaningful insi
 I am currently attending a postgraduate course in Data Analysis for Business (on evening), which is ending on June 2022.
 
 
-About my hobbeis, I love travelling, listening to music and going to the cinema.
+About my hobbies, I love travelling, listening to music and going to the cinema.
