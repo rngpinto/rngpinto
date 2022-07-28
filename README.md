@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @rngpinto
+- 👋 Hi, I’m Ricardo
 
 
 I am a Project Manager Professional (PMP)® with 8 years’ experience in project management.
