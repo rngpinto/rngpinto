@@ -1,5 +1,7 @@
 - 👋 Hi, I’m Ricardo
 
+Welcome to my Data Analytics Portfolio!
+
 
 I am a Project Manager Professional (PMP)® with 8 years’ experience in project management.
 
